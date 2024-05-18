@@ -1,3 +1,0 @@
-# WordCout
-# WordCout
-# WordCout
